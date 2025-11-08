@@ -1,4 +1,4 @@
-## Hi I'M Arun Kumar 👋
+## Hi I'M sandeep 👋
 
 💡 Artificial Intelligence & Data Science Student at IIITDM Kurnool (2022-2026)<br/>
 
